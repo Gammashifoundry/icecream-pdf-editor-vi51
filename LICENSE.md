@@ -1,4 +1,4 @@
-# 
+# smart Wave para PC addons es el mejor Wave para PC addons con acceso móvil y captura de recibos. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
